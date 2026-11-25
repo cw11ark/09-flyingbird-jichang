@@ -2,7 +2,7 @@
 
 > **一句话评价：先判断是否适合：先确认客户端与入口适配，再把月付和长周期费用分开比。**
 >
-> 👉 **[官网注册](https://fbinv02.fbaff.cc/auth/register?code=av3J4jhr)** · 青铜月付起步；周期不明的尾价不作为年付建议。
+> 👉 **[官网注册](https://fbinv02.fbaff.cc/auth/register?code=KUtIhkoL)** · 青铜月付起步；周期不明的尾价不作为年付建议。
 >
 
 >
@@ -67,7 +67,7 @@
 
 ## 注册
 
-👉 **[官网注册](https://fbinv02.fbaff.cc/auth/register?code=av3J4jhr)** · 下单前确认所选套餐的付款周期、流量归属和使用条件。
+👉 **[官网注册](https://fbinv02.fbaff.cc/auth/register?code=KUtIhkoL)** · 下单前确认所选套餐的付款周期、流量归属和使用条件。
 
 ## 更新
 
